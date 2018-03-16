@@ -66,4 +66,4 @@ almacenan en los navegadores, con distintos fines.*
 
 [Noticia deportiva](https://www.google.com.ar/amp/s/argentina.as.com/argentina/2018/03/15/futbol/1521071476_497853.amp.html)
 
-[Receta de Tallarines](https://cookpad.com/ar/buscar/fideos%20caseros%20al%20huevo)
+[Receta de Tallarines](https://cookpad.com/ar/recetas/2178240-fideos-caseros-al-huevo)
