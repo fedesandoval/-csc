@@ -12,5 +12,5 @@ Soy una persona extrovertida, carismática, me gusta sociabilizar, conectarme co
 
 Me gustaría en un futuro poder terminar la carrera de **Lic. en Informática** y luego poder especializarme, si es posible, en Seguridad Informática. Me gustan los videojuegos, las películas, las series y el animé. **Nunca aprendí a cómo programar**, pero siempre estuvo mi vida ligada a la tecnología. Otra pasión que tuve fue la de nadar y el aprender, principalmente, historia y filosofía.
 
-[https://drive.google.com/open?id=1OaKqNufLjSX87e8yAOsmBoNzacCYdJQJ](https://www.instagram.com/fedesandovaaal_/)
+[https://drive.google.com/open?id=1OaKqNufLjSX87e8yAOsmBoNzacCYdJQJ](https://www.google.com.ar/search?q=pajaros&client=firefox-b-ab&dcr=0&source=lnms&tbm=isch&sa=X&ved=0ahUKEwiFsb_HvfnZAhVKFZAKHRMUDnEQ_AUICigB&biw=1525&bih=774#imgrc=zlpjkPMs70OwpM:)
 
