@@ -2,7 +2,7 @@
 
 ##¿Quién soy?
 
-Mi nombre es [*Federico Sandoval*](https://drive.google.com/open?id=1OaKqNufLjSX87e8yAOsmBoNzacCYdJQJ), tengo 18 años. Nací en *Florencio Varela* el 29 de octubre de 1999, y también resido en ésta ciudad.
+Mi nombre es ![*Federico Sandoval*](https://drive.google.com/open?id=1OaKqNufLjSX87e8yAOsmBoNzacCYdJQJ), tengo 18 años. Nací en *Florencio Varela* el 29 de octubre de 1999, y también resido en ésta ciudad.
 
 ##¿Cómo soy?
 
