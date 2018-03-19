@@ -11,3 +11,6 @@ Soy una persona extrovertida, carismática, me gusta sociabilizar, conectarme co
 ##Objetivos y hobbies.
 
 Me gustaría en un futuro poder terminar la carrera de **Lic. en Informática** y luego poder especializarme, si es posible, en Seguridad Informática. Me gustan los videojuegos, las películas, las series y el animé. **Nunca aprendí a cómo programar**, pero siempre estuvo mi vida ligada a la tecnología. Otra pasión que tuve fue la de nadar y el aprender, principalmente, historia y filosofía.
+
+![https://drive.google.com/open?id=1OaKqNufLjSX87e8yAOsmBoNzacCYdJQJ](https://www.instagram.com/fedesandovaaal_/)
+
